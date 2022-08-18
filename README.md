@@ -5,7 +5,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/ulises-571659223/](https://www.linkedin.com/in/ulises-571659223/)
 
-- ⚡ My Hobbies are **playing piano and video games**
+- ⚡ My Hobbies are **Video games and the piano**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
